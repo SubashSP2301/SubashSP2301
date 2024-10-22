@@ -9,4 +9,4 @@
 
 📫 subashpandiyan477@gmail.com
 
-https://img.icons8.com/?size=100&id=QxC4KDIwpjTE&format=png&color=000000
+([excel-icon.png](https://img.icons8.com/?size=100&id=QxC4KDIwpjTE&format=png&color=000000))
